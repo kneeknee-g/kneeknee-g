@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kneeknee-g
+- 👀 I’m interested in swimming, dance, and squishmallows.
+- 🌱 I’m currently learning school stuff.
+- 💞️ I’m looking to collaborate on CPC bizness.
+- 📫 Reach me by email.
